@@ -12,4 +12,4 @@ Taking a year after highschool before you enter college/university could be widl
 * You've just spent the last twelve+ years of your life in the education system.
 * College is approaching the level of financial debt like taking on a home mortgage. You should at least be sure before of what you want before you sign-up!
 
-###You've just read things that may have assaulted your personal beliefs, you may feel resistance, but I encourage you to keep going. This isn't meant to offend you, but merely present perspectives about reality.
+**You've just read things that may have assaulted your personal beliefs, you may feel resistance, but I encourage you to keep going. This isn't meant to offend you, but merely present perspectives about reality.**
